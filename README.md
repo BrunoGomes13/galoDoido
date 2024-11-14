@@ -1,2 +1,2 @@
 # galoDoido
-Time do Coração  :)
+Times do Coração  :)
